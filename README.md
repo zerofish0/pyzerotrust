@@ -1,1 +1,2 @@
-https://discord.gg/DsQtYZyz
+⚠️ PROJECT ARCHIVED ⚠️
+
